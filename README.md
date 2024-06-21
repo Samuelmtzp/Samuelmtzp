@@ -1,4 +1,4 @@
-<p><img align="right" height="170" width="250" src="https://tenor.com/view/giga-gigacat-cat-mewing-mogging-gif-12429734670640119345.gif" /></p>
+
 
 <br/>
 
